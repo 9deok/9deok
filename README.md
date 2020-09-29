@@ -15,4 +15,4 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 -->
 
-![image](https://github.com/9deok/9deok/blob/master/ezgif.com-gif-maker.gif)
+![image](https://github.com/9deok/9deok/blob/master/github-profile.gif)
