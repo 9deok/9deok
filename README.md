@@ -17,4 +17,4 @@ Here are some ideas to get you started:
 
 ![image](https://github.com/9deok/9deok/blob/master/github-profile.gif)
 
-**I grow everyday**
+**I grow everyday👍**
